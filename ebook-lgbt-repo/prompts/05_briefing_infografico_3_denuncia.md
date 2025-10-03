@@ -1,0 +1,1 @@
+Passo a passo: (1) Registre evidências; (2) Procure apoio/ONG; (3) Disque 100; (4) Defensoria/MP; (5) Acompanhe o caso. CTA: “LGBTfobia é crime”.

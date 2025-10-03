@@ -1,0 +1,1 @@
+Linha do tempo com marcos: 2011 (STF união estável), 2013 (CNJ casamento), 2018 (STF retificação), 2019 (STF LGBTfobia), base constitucional (arts. 3º e 5º).

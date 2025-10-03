@@ -1,0 +1,1 @@
+Capa vertical (portrait), cores vibrantes inspiradas no arco-íris, título “Direitos e Cidadania LGBT no Brasil – Guia para Jovens”, subtítulo “Conheça, Exerça e Transforme”. Estilo moderno, inclusivo, legível.

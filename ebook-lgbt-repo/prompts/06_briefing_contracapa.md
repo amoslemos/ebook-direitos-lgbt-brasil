@@ -1,0 +1,1 @@
+Contra-capa vertical coordenada com a capa, texto de apresentação, créditos/agradecimentos e espaço para QR code (opcional).

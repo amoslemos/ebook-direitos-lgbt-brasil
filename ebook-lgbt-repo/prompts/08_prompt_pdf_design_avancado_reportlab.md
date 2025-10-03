@@ -1,0 +1,1 @@
+Gerar PDF com design avançado: capa, contra-capa, sumário, capítulos estilizados, depoimentos em caixas, paleta arco-íris, rodapé com numeração. Saída: ebook_direitos_lgbt_brasil.pdf.

@@ -1,0 +1,1 @@
+Infográfico horizontal. Título: Espectro da Identidade e Orientação. Três eixos: Identidade de Gênero, Expressão de Gênero, Orientação Sexual. Ícones e legenda didática; paleta arco-íris suave.

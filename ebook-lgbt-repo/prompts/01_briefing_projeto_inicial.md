@@ -1,0 +1,1 @@
+Crie um eBook educativo voltado para jovens sobre os direitos e a cidadania da população LGBT no Brasil... (briefing completo do projeto).
